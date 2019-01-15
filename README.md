@@ -14,3 +14,6 @@ lol dit is joey ik schrijf hier ook wat
 
 [![Video](http://img.youtube.com/vi/v=dQw4w9WgXcQ/0.jpg)](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 
+>"je kunt je verslaving niet onderdrukken,
+>zelfs nú heb je hem mee, jij bent gek,
+>dat de laptop nog werkt is een wonder".
